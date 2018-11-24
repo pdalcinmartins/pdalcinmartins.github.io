@@ -1,6 +1,6 @@
 ### I am a postdoctoral researcher with 11 years of experience in the field of microbiology, having conducted research in Brazil, Italy, USA, and The Netherlands. I highly value teaching and science outreach and communication, and I aim to become a professor in a university, combining my passion for science with advocacy for justice, equity and diversity in academia.
 
-[LinkedIN](https://www.linkedin.com/in/paula-dalcin-martins/)
+[LinkedIn](https://www.linkedin.com/in/paula-dalcin-martins/)
 
 [Twitter](https://twitter.com/pdalcinmartins)
 
